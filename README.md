@@ -1,2 +1,2 @@
 # hello-world
-Trad.
+Traditional arrangement by me.
